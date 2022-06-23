@@ -1,0 +1,5 @@
+- 👋 Sou Kauane Vitória, tenho 16 anoS.
+- 👀 Gosto de comer, mexer no celular, dormir e passear.
+- 🌱 Nativa do Brasil,Curitibana
+- 💞️ Amo animais
+- 📫 
