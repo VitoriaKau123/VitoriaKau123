@@ -3,4 +3,4 @@
 - 🌱 Nativa do Brasil,
 - 💞️ Amo animais
 - 📫 Cursando o primeiro ano do ensino 
-Moro em São Matheus do Sul
+Moro em São Mateus do Sul
